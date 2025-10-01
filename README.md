@@ -4,7 +4,7 @@ stuff I used to prepare French learning
 
 
 ### 📌 Important Notice  
-These educational materials are provided just showing some exercise done in the par ici A2 book:  
+These educational materials are provided just showing some exercise done:  
 - Understand French  
 - Practice the important/interesting exercise 
 - Compare with my anwser
